@@ -1,0 +1,2 @@
+# AIBU.fun
+memecoin ai
